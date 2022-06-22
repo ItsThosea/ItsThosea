@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ItsThosea
+- 👀 I’m interested in Minecraft and I make plugins for it
