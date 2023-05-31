@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @ItsThosea
 - 👀 I’m interested in Minecraft and I make plugins for it
+- 🎮 I love Nintendo and play a lot of their games
