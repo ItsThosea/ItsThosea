@@ -1,5 +1,4 @@
 - he/him, pronounced THOE-SEE-UH
-- Nintendo enthusiast
 - Minecraft modder
 - Self-taught Java programmer
 - PFP art by @pikadoessomething
