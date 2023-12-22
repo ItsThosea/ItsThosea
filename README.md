@@ -1,3 +1,5 @@
-- 👋 Hi, I’m @ItsThosea
-- 👀 I’m interested in Minecraft and I make plugins for it
-- 🎮 I love Nintendo and play a lot of their games
+- he/him, pronounced THOE-SEE-UH
+- Nintendo enthusiast
+- Minecraft modder
+- Self-taught Java programmer
+- PFP art by @pikadoessomething
